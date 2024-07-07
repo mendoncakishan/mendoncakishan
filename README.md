@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mendoncakishan call me LUCiFER_DEVo
--    follower of Elons works and motos
-- 👀 I’m interested in transition of our self and our human race
+  
+- 👀 trying to exit the matrix
 - 🌱 I’m currently learning every single things ("basics tho");
 - 💞️ I’m looking to collaborate  
 - 📫 reach me +919164000741 IND
